@@ -48,6 +48,8 @@ Y quiero que duermas conmigo esta noche"*
 
 **CORO**
 
+---
+
 ***Pasado pisado, girl  
 Rico fue volverte a ver  
 Pero más me pasa a mí,  
