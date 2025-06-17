@@ -27,15 +27,15 @@ cuerpo a cuerpo, tú y yo, pegaditos los dos;
 te dije al oído: "me gustas  
 y quiero que vengas conmigo esta noche"*
 
-***Y tomar junto a ti el café de las mañanas,  
+**Y tomar junto a ti el café de las mañanas,  
 despertarte a besos complaciéndote en mi cama  
 y mirar tu cara, tu carita sonriente,  
-que sepa la gente que te quiero y que me quieres***
+que sepa la gente que te quiero y que me quieres**
 
-***Sin pensar en el pasado ni el presente,  
+**Sin pensar en el pasado ni el presente,  
 no me importa, amor, saber de dónde vienes;  
 si soy el primero o el último en tu lista  
-yo sé bien que es amor a primera vista.***
+yo sé bien que es amor a primera vista.**
 
 ***Uh,  
 uh-uh-uh-uh-uh  
