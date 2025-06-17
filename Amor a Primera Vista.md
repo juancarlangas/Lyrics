@@ -1,9 +1,9 @@
-Uh, uh-uh-uh-uh-uh  
+***Uh, uh-uh-uh-uh-uh  
 Uh-uh-uh-uh-uh  
 Uh-uh-uh-uh-uh, uh, uh  
 Uh, uh-uh-uh-uh-uh  
 Uh-uh-uh-uh-uh  
-Uh-uh-uh-uh-uh, uh, uh*
+Uh-uh-uh-uh-uh, uh, uh***
 
 Te vi pasar con tu carita de ángel  
 Ojos de rubí, sonrisa bien brillante  
@@ -20,49 +20,53 @@ Cuerpo a cuerpo tú y yo, pegaditos los dos
 Te dije, al oído: "me gustas  
 Y quiero que vengas conmigo esta noche"*
 
-Y tomar, junto a ti, el café de las mañanas
-Despertarte a besos, complaciéndote en mi cama
-Y mirar tu cara, tu carita sonriente
-Que sepa, la gente, que te quiero y que me quieres
-Sin pensar en el pasado ni el presente
-No me importa, amor, saber de dónde vienes
-Si soy el primero o el último en tu lista
-Yo sé bien que es amor a primera vista
-Uh, uh-uh-uh-uh-uh
-Uh-uh-uh-uh-uh
-Uh-uh-uh-uh-uh, uh, uh
-Me voy, por hoy
-Pero, quizá mañana volveré
-Y ojalá que nos volvamos a ver
-Porque contigo la he pasado muy bien
-Por más que yo quería, no me atreví a decir
-"No te vayas, por Dios quédate, por favor"
-Te dije al oído: "me gustas
-Y quiero que duermas conmigo esta noche"
-Y tomar, junto a ti, el café de las mañanas
-Despertarte a besos, complaciéndote en mi cama
-Y mirar tu cara, tu carita sonriente
-Que sepa, la gente, que te quiero y que me quieres
-Sin pensar en el pasado ni el presente
-No me importa, amor, saber de dónde vienes
-Si soy el primero o el último en tu lista
-Yo sé bien que es amor a primera vista
-Pasado pisado, girl
-Rico fue volverte a ver
-Pero más me pasa a mí, vi tu foto en Internet
-Todo, todo, en verdad, que tú lo tienes todo
-Pasión y rebelde con el amor
-Quizá fue el destino (El destino), te quiero volver a ver
-Estás en mi camino (Tú), como aquel atardecer
-Suele suceder, el amor es ciego nunca puede ver
-Sin pensar en el pasado, ni el presente
-No me importa, amor, saber de dónde vienes
-Si soy la primera o la última en tu lista
-Yo sé bien que es amor a primera vista
-Uh, uh-uh-uh-uh-uh
-Uh-uh-uh-uh-uh
-Uh-uh-uh-uh-uh, uh, uh
-Amor, amor, amor
-(Uh-uh-uh-uh-uh) Amor, amor, amor
-(Uh-uh-uh-uh-uh, uh, uh) Amor, amor, amor
-A primera vista
+**Y tomar, junto a ti, el café de las mañanas  
+Despertarte a besos, complaciéndote en mi cama  
+Y mirar tu cara, tu carita sonriente  
+Que sepa, la gente, que te quiero y que me quieres**
+
+**Sin pensar en el pasado ni el presente  
+No me importa, amor, saber de dónde vienes  
+Si soy el primero o el último en tu lista  
+Yo sé bien que es amor a primera vista**
+
+***Uh, uh-uh-uh-uh-uh  
+Uh-uh-uh-uh-uh  
+Uh-uh-uh-uh-uh, uh, uh***
+
+---
+
+Me voy, por hoy  
+Pero, quizá mañana volveré  
+Y ojalá que nos volvamos a ver  
+Porque contigo la he pasado muy bien.
+
+*Por más que yo quería, no me atreví a decir  
+"No te vayas, por Dios quédate, por favor"  
+Te dije al oído: "me gustas  
+Y quiero que duermas conmigo esta noche"*
+
+**CORO**
+
+***Pasado pisado, girl  
+Rico fue volverte a ver  
+Pero más me pasa a mí,  
+vi tu foto en Internet  
+Todo, todo, en verdad, que tú lo tienes todo  
+Pasión y rebelde con el amor.***
+
+***Quizá fue el destino (El destino),  
+te quiero volver a ver  
+Estás en mi camino (Tú),  
+como aquel atardecer  
+Suele suceder,  ***
+
+**CORO (2a mitad)**
+
+***Uh, uh-uh-uh-uh-uh  
+Uh-uh-uh-uh-uh  
+Uh-uh-uh-uh-uh, uh, uh  
+Amor, amor, amor  
+(Uh-uh-uh-uh-uh) Amor, amor, amor  
+(Uh-uh-uh-uh-uh, uh, uh) Amor, amor, amor  
+A primera vista***
