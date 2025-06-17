@@ -50,18 +50,15 @@ Y quiero que duermas conmigo esta noche"*
 
 ---
 
-***Pasado pisado, girl  
-Rico fue volverte a ver  
-Pero más me pasa a mí,  
-vi tu foto en Internet  
+***He pasado enviciado, girl, rico fue volverte a ver  
+Pero más me pasa a mí, vi tu foto en internet  
 Todo, todo, en verdad, que tú lo tienes todo  
-Pasión y rebelde con el amor.***
+Fashion y rebelde con amor.***
 
-***Quizá fue el destino (El destino),  
-te quiero volver a ver  
-Estás en mi camino (Tú),  
-como aquel atardecer  
-Suele suceder,  ***
+***Quizá fue el destino (el destino), te quiero volver a ver  
+toda en mi camino (tú), como aquel atardecer,  
+suele suceder,  
+el amor es ciego, nunca puede ver***
 
 **CORO (2a mitad)**
 
