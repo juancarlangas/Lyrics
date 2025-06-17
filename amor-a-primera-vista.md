@@ -1,50 +1,56 @@
-# Amor a Primera Vista
+## Amor a Primera Vista
 
-***Uh, uh-uh-uh-uh-uh  
+***Uh,  
+uh-uh-uh-uh-uh  
 Uh-uh-uh-uh-uh  
-Uh-uh-uh-uh-uh, uh, uh  
-Uh, uh-uh-uh-uh-uh  
-Uh-uh-uh-uh-uh  
-Uh-uh-uh-uh-uh, uh, uh***
+Uh-uh-uh-uh-uh, uh, uh.***
 
-Te vi pasar con tu carita de ángel  
-Ojos de rubí, sonrisa bien brillante  
-Te seguí, lo sé,  
+***Uh,  
+uh-uh-uh-uh-uh  
+Uh-uh-uh-uh-uh  
+Uh-uh-uh-uh-uh, uh, uh.***
+
+---
+
+Te vi pasar con tu carita de ángel,  
+ojos de rubí, sonrisa bien brillante,  
+te seguí, lo sé,  
 mi instinto me llevaba hacia ti.
 
-Llegué al bar, pedí un fuerte tequila  
-Para comenzar Te vi con tus amigas,  
-me acerqué Con el pretexto  
-de invitarte a bailar.
+Llegué al bar,  
+pedí un fuerte tequila para comenzar,  
+te vi con tus amigas, me acerqué  
+con el pretexto de invitarte a bailar.
 
 *La rola que sonaba incitaba a gozar  
-Cuerpo a cuerpo tú y yo, pegaditos los dos  
-Te dije, al oído: "me gustas  
-Y quiero que vengas conmigo esta noche"*
+cuerpo a cuerpo, tú y yo, pegaditos los dos;  
+te dije al oído: "me gustas  
+y quiero que vengas conmigo esta noche"*
 
-**Y tomar, junto a ti, el café de las mañanas  
-Despertarte a besos, complaciéndote en mi cama  
-Y mirar tu cara, tu carita sonriente  
-Que sepa, la gente, que te quiero y que me quieres**
+***Y tomar junto a ti el café de las mañanas,  
+despertarte a besos complaciéndote en mi cama  
+y mirar tu cara, tu carita sonriente,  
+que sepa la gente que te quiero y que me quieres***
 
-**Sin pensar en el pasado ni el presente  
-No me importa, amor, saber de dónde vienes  
-Si soy el primero o el último en tu lista  
-Yo sé bien que es amor a primera vista**
+***Sin pensar en el pasado ni el presente,  
+no me importa, amor, saber de dónde vienes;  
+si soy el primero o el último en tu lista  
+yo sé bien que es amor a primera vista.***
 
-***Uh, uh-uh-uh-uh-uh  
+***Uh,  
+uh-uh-uh-uh-uh  
 Uh-uh-uh-uh-uh  
 Uh-uh-uh-uh-uh, uh, uh***
 
 ---
 
-Me voy, por hoy  
-Pero, quizá mañana volveré  
+Me voy por hoy  
+pero quizá mañana volveré  
 Y ojalá que nos volvamos a ver  
-Porque contigo la he pasado muy bien.
+porque contigo la he pasado muy bien.
 
 *Por más que yo quería, no me atreví a decir  
-"No te vayas, por Dios quédate, por favor"  
+"No te vayas, por Dios, quédate por favor"  
 Te dije al oído: "me gustas  
 Y quiero que duermas conmigo esta noche"*
 
@@ -52,22 +58,24 @@ Y quiero que duermas conmigo esta noche"*
 
 ---
 
-***He pasado enviciado, girl, rico fue volverte a ver  
-Pero más me pasa a mí, vi tu foto en internet  
-Todo, todo, en verdad, que tú lo tienes todo  
-Fashion y rebelde con amor.***
+***He pasado pisteando, girl, rico fue volverte a ver  
+pero más me pasa a mí, vi tu foto en internet,  
+todo, todo, en verdad que tú la tienes toda,  
+Fashion y rebelde con la amor.***
 
-***Quizá fue el destino (el destino), te quiero volver a ver  
-toda en mi camino (tú), como aquel atardecer,  
-suele suceder,  
+***Quizá fue el destino (el destino), te quiero volver a ver,  
+tu en mi camino (tú), como aquel atardecer,  
+suele suceder,    
 el amor es ciego, nunca puede ver***
 
 **CORO (2a mitad)**
 
-***Uh, uh-uh-uh-uh-uh  
+***Uh,  
+uh-uh-uh-uh-uh  
 Uh-uh-uh-uh-uh  
-Uh-uh-uh-uh-uh, uh, uh  
-Amor, amor, amor  
+Uh-uh-uh-uh-uh, uh, uh***
+
+***Amor, amor, amor  
 (Uh-uh-uh-uh-uh) Amor, amor, amor  
 (Uh-uh-uh-uh-uh, uh, uh) Amor, amor, amor  
 A primera vista***
