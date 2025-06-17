@@ -1,3 +1,5 @@
+# Corazón de acero
+
 Quedarme a tu lado  
 no me dio buen resultado  
 Siento decirte que, al final,  
@@ -8,7 +10,7 @@ quién perdió más de la cuenta
 Fuiste tú, te quedas sin amor,  
 si es que sientes su ausencia.
 
-*Y es que mi corazón, 
+*Y es que mi corazón,  
 para tanta desilusión  
 él no fue diseñado*.
 
