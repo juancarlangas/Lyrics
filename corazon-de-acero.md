@@ -28,3 +28,18 @@ gracias a ti y a toda tu maldad hoy logro reemplazarte.**
 ¡Necesitaba otras caricias para olvidarte!**
 
 ***Pero que qué e' lo que vamo'a hacer, eh***
+
+---
+
+**CORO**
+
+---
+
+**Hoy vuelvo a respirar,  
+gracias a ti y a toda tu maldad hoy logro reemplazarte.  
+¿Quién iba a imaginar?  
+¡Necesitaba otras caricias para olvidarte!**
+
+**¡Necesitaba otras caricias para olvidarte!  
+¡Necesitaba otras caricias para olvidarte!  
+¡Necesitaba otras caricias para olvidarte!**
