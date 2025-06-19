@@ -5,9 +5,9 @@ no me dio buen resultado;
 siento decirte que, al final,  
 eso no ha funcionado.
 
-Puedes darte cuenta:  
-quien perdió más de la cuenta  
-fuiste tú: te quedas sin amor  
+Puedes darte cuenta  
+quién perdió más de la cuenta  
+fuiste tú; te quedas sin amor  
 si es que sientes su ausencia.
 
 *Y es que mi corazón  
