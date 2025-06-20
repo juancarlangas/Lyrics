@@ -1,16 +1,16 @@
 # PEPAS
 
-No me importa lo que de mí se diga  
-Viva usted su vida, que yo vivo la mía  
-Que solo es una, disfruta el momento  
-Que el tiempo se acaba y pa'trás no vira.
+No me importa lo que de mí se diga,  
+viva usted su vida, que yo vivo la mía;  
+que solo es una, disfruta el momento  
+que el tiempo se acaba y pa'trás no vira.
 
 Bebiendo, fumando y jodiendo  
-Sigo vacilando de party to' los día'  
-Síguelo, oh-oh-oh, oh-oh-oh, oh-oh (Farru)  
+sigo vacilando de party to' los día'.  
+Síguelo, oh-oh-oh, oh-oh-oh, oh-oh (Farru).  
 Síguelo, oh-oh-oh, oh-oh-oh, oh-oh (la rola y pepa).
 
-**Pepa y agua pa' la seca  
+**Pepas y agua pa' la seca  
 To' el mundo en pastilla' en la discoteca  
 Pepa y agua pa' la seca  
 To' el mundo en pastilla' en la discoteca**
@@ -41,3 +41,7 @@ Esto se salió de control.*
 Fa-Fa-rru  
 Qué maldita nota  
 Arcoíris***
+
+---
+
+`Desde arriba`
